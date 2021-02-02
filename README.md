@@ -5,10 +5,11 @@ Alpha 1,
 
 
 Hello, this is my i think third cheat.  i own 2 cheats now.
-dev : -
-Owner: eazy/7ksins
-admin: Probably crxspy
-staff : -
-members: -
-alpha members -
-fuck my life this will be a  long start
+we have no dev.
+no admin.
+no stuff
+no members.
+no owner.
+none.
+jk just join if u find this!
+https://discord.gg/NMneRuJuv3 <3
